@@ -1,7 +1,7 @@
 # Introduce 
 My English name is Alex Lee.
 
-I'm 13,a student of Junior High School.
+14. Love songs.
 
 You can reach me Alex Lee or XLRT.
 
